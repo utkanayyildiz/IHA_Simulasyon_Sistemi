@@ -1,0 +1,1 @@
+[Itunom Yazılım Odevi Sorular.docx](https://github.com/user-attachments/files/23289457/Itunom.Yazilim.Odevi.Sorular.docx)
